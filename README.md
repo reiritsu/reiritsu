@@ -19,4 +19,4 @@ if you think did/osdd are quirky for fun disorders so you can rp as fictional ch
 
 if youre a rei skin/are him/whatever and idk you dont randomly int with me i dont trust yall
 
-im not proship or comship if youre a reiritsuer: jump 🖤
+im not proship or comship i took this url so proshippers couldnt; if youre a reiritsuer: jump 🖤
