@@ -8,3 +8,5 @@ married to @1prozac
 ••• dni
 
 proship . endo/supporter . terminally online . minors
+
+im not proship or comship i hoarded this url to say fuck you
