@@ -2,9 +2,13 @@
 he/it
 
 idk int if you want 
+
 i come off blunt but im not trying to be a dick sorry in advance
+
 married to @1prozac
+
 sorry if vega friends you and i act like idk who you are shes extroverted
+
 idm if you sit with me if he added you tho
 
 ••• dni
