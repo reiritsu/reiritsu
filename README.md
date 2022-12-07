@@ -13,8 +13,10 @@ idm if you sit with me if he added you tho
 
 ••• dni
 
-proship . endo/supporter . terminally online . minors . system larpers
+proship/comship/whatever . endo/supporter . terminally online . minors . system larpers
 
 if you think did/osdd are quirky for fun disorders so you can rp as fictional characters fuck off and gws
 
-im not proship or comship i hoarded this url to say fuck you
+if youre a rei skin/are him/whatever and idk you dont randomly int with me i dont trust yall
+
+im not proship or comship if youre a reiritsuer: jump 🖤
